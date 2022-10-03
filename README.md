@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ITisTHATis31
 - 👀 I’m interested in ...(yet to discover...!)
-- 🌱 Jst having healthy eventless jounrey.
+- 🌱 Jst having a healthy eventless jounrey.
 - 📫 How to reach me ...(?)
 
 <!---
